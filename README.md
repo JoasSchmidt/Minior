@@ -1,1 +1,1 @@
-# Minior
+# Miniore-Ultimate-Edition
